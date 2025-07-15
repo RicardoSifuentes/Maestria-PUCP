@@ -1,2 +1,2 @@
-# Tesis-PUCP
+# Maestría-PUCP
 sdnasdja
